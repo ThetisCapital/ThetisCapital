@@ -4,7 +4,7 @@
 - 🌱 We are currently learning all things crypto.
 - 👯 We are looking to collaborate on projects that need help with token launches and positioning of the business and product.
 - 💬 Ask us about financing needs. www.Thetis.Capital
-- 📫 How to reach us: info@thetis.capital
+- 📫 How to reach us: julius@thetis.capital
 - 😄 Lingo: HODL, DYOR, 💎🙌 Diamond Hands
 - ⚡ Fun fact: The name Thetis comes from greek mythology and was the mother of Achilles. 
 
