@@ -5,7 +5,7 @@
 - 👯 We are looking to collaborate on projects that need help with token launches and positioning of the business and product.
 - 💬 Ask us about financing needs. www.Thetis.Capital
 - 📫 How to reach us: julius@thetis.capital
-- 😄 Lingo: HODL, DYOR, 💎🙌 Diamond Hands
+- 😄 Lingo: Bitcoin Maximalist, HODL, DYOR, 💎🙌 Diamond Hands, Bagholder
 - ⚡ Fun fact: The name Thetis comes from greek mythology and was the mother of Achilles. 
 
 
